@@ -35,4 +35,4 @@
 
 **#推荐好友使用云信，即享1500元京东卡奖励# 点击立即参与https://yunxin.163.com/promotion/recommend?channel=github**
 
-![main](https://yx-web-nosdn.netease.im/quickhtml%2Fassets%2Fyunxin%2Fdefault%2F2022%2Fgithub%2F900%E5%AE%BD%20%281%29.png)
+![main](https://yx-web-nosdn.netease.im/quickhtml%2Fassets%2Fyunxin%2Fdefault%2F2022%2Fgithub%2F233.png)
